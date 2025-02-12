@@ -3,19 +3,22 @@ With over 23 years of dedicated service in the finance industry, I bring a wealt
 
 ## Education
 Caldicot Comprehensive - 1990-1995
+
 GCSE
-•	Mathematics 
-•	English Lit & Lang 
-•	History 
-•	Art & Design 
+Mathematics 
+English Lit & Lang 
+History 
+Art & Design 
+
 Crosskeys College - 1996 - 1999
-•	Art & Design 
-•	National Nursery Education Board (NNEB)
+Art & Design 
+National Nursery Education Board (NNEB)
+
 Clifton College - 2008
-•	Level 3 Diploma in Health, Safety, Security & Employment Standards  
-•	NVQ Customer Service 
-•	Diploma for Beauty Specialists level 2 
-•	Level 3 Swedish Massage
+Level 3 Diploma in Health, Safety, Security & Employment Standards  
+NVQ Customer Service 
+Diploma for Beauty Specialists level 2 
+Level 3 Swedish Massage
 
 ## Work Experience
 
