@@ -23,3 +23,21 @@ Level 3 Swedish Massage
 ## Work Experience
 
 ## Skills
+
+Lean Methodology
+ 
+Managing workloads
+ 
+Business partnering
+ 
+PowerBi
+ 
+Power Automate 
+Line Management 
+Coaching
+ 
+Excel, PowerPoint & Word
+ 
+SQL
+ 
+
