@@ -40,7 +40,8 @@ Excel, PowerPoint & Word
  
 SQL
  
-##Capabilities
+## Capabilities
+
 Graduated on the Elevate programme.
 Coach2Code SQL beginners training programme.
 Capability developed to code within the Axis system, building and developing data extracts.
