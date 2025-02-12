@@ -40,4 +40,12 @@ Excel, PowerPoint & Word
  
 SQL
  
+##Capabilities
+Graduated on the Elevate programme.
+Coach2Code SQL beginners training programme.
+Capability developed to code within the Axis system, building and developing data extracts.
+*Capability developed on PowerBi and Power automate.
+•	Got selected to attend the grade E Coaching pilot course learning new coaching skills while also having an input to the training going forward.
+•	Obtained a mentor to help develop my articulation in meetings.
+•	Trained in the Lean method and passed.
 
